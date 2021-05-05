@@ -1,0 +1,1 @@
+Trignometric tan operation taker place here 
