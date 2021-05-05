@@ -1,0 +1,1 @@
+Trignometric cos operation taker place here 
